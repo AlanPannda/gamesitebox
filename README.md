@@ -49,7 +49,7 @@ When planning a road trip, SEO plays a critical role in finding the right resour
 
 ## Escape Road Blog: Stay Updated on the Latest Travel Trends
 
-Don't forget to check out our [Escape Road Blog](http://escaperoad.top/blog/) for the latest articles, tips, and travel news. Whether you’re looking for inspiration for your next adventure or need advice on road trip essentials, our blog has everything you need to make your trip unforgettable.
+Don't forget to check out our [Escape Road Blog](http://escaperoad.top) for the latest articles, tips, and travel news. Whether you’re looking for inspiration for your next adventure or need advice on road trip essentials, our blog has everything you need to make your trip unforgettable.
 
 ## Conclusion
 
